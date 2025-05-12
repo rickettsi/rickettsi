@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @rickettsi
+- 👀 I’m interested in evolutionnary biology and ecolgy
+- 🌱 I’m currently learning mathematical modelling in eco-evo
+- 📫 How to reach me ...
+- 😄 Pronouns: he/him
+- ⚡ Fun fact: ...
